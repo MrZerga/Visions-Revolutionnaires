@@ -3,7 +3,7 @@
 Sommaire
 ---
 
-* Une courte histoire de la révolution, de 1789 au Cuirassé Potemkine.
+* Une courte histoire de la révolution, des hommes et du pouvoir.
 * Pourquoi la révolution ?
 * Comment faire la révolution ?
 * Et ensuite ?
