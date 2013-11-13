@@ -9,6 +9,6 @@ C'est aussi ça qui nous a permis d'arriver jusqu'ici sans se détruire entre no
 compte que la loi du plus fort, elle sert que le plus fort. 1ère révolte.  
 En effet, c'est pas une révolution. Pour citer l'encyclopédie libre;
 
-  La révolution est un mouvement politique amenant, ou tentant d'amener un changement brusque et en profondeur dans la structure politique et sociale d'un État.
+  `La révolution est un mouvement politique amenant, ou tentant d'amener un changement brusque et en profondeur dans la structure politique et sociale d'un État.`
 
 C'est ce que revendique ce livre d'ailleurs, mais passons.
