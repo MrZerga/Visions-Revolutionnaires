@@ -11,4 +11,7 @@ En effet, c'est pas une révolution. Pour citer l'encyclopédie libre;
 
   `La révolution est un mouvement politique amenant, ou tentant d'amener un changement brusque et en profondeur dans la structure politique et sociale d'un État.`
 
-C'est ce que revendique ce livre d'ailleurs, mais passons.
+C'est ce que revendique ce livre d'ailleurs, mais passons. Ironiquement, la 1ere révolution comptemporaine à avoir un impact sur le monde est la libération des colonies anglaise en amérique du nord, pour ensuite fonder les Etats-Unis D'Amériqu, qui est aujourd'hui un état impérialiste,
+bien loin de ses origines. Ce qui est peu étonnant à la vue de leur fondation, et les bases sur lesquelles l'USA se pose. ( Voir la chapitre sur l'analyse révolutionnaire )  
+Il faut donc bien penser la révolution. Il ne faut pas laisser une révolution se faire récuperer par les groupes dirigeants. Les révolutions arabes sont un triste exemple, un peuple se révolte pour ensuite se
+faire controler par l'armée dans un pays et une religion dans l'autre... Quand à faire une révolution avec les armes et les troupes de d'autres Etats, c'est certe très pratique, mais peu efficace sur le long terme.
