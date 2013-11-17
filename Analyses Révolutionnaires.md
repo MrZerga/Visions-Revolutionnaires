@@ -8,13 +8,13 @@ sous entend massacres des populations indigènes, exploitations de ces gens sous
 matières premières, expansion de la religion chrétienne (imposée aux indigènes). Les raisons de ces actes sont simples 
 et sont enseignées ainsi dans toutes les écoles du monde, chacun les connaît:
 
-  * le patriotisme //* c'est le bon terme?*//: la fierté d'appartenir à une nation et de la servir en conquérant de 
+  * Nationalisme: la fierté d'appartenir à une nation et de la servir en conquérant de 
 nouveaux territoires.
-  * le commerce: les ressources naturelles expoitées et vendues dans le monde entier au profit de ceux qui les font
+  * Le commerce: les ressources naturelles expoitées et vendues dans le monde entier au profit de ceux qui les font
 exploiter.
-  * la gloire: l'envie d'être promu socialement (par exemple l'anoblissement).
-  * la religion: l'intolérance à la pratique d'autre culte que celui qu'on considère comme authentique.
-  * le pouvoir: le contrôle total des territoires colonisés.
+  * La gloire: l'envie d'être promu socialement (par exemple l'anoblissement).
+  * La religion: l'intolérance à la pratique d'autre culte que celui qu'on considère comme authentique.
+  * Le pouvoir: le contrôle total des territoires colonisés.
 Ce qui se cache derrière ces mots est autrement plus complexe et intéressant: l'animalité des humains.  
 
                                   Les débuts du capitalisme avec les débuts de la vie:
